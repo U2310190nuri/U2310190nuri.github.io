@@ -1,1 +1,1 @@
-# u2310190nuri.github.io
+# U2310190nuri.github.io
